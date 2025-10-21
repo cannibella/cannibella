@@ -1,1 +1,42 @@
-wip.
+<div align="center">
+
+## ${\textsf{\color{#4d100d}⠀˖⠀𓇬⠀˖⠀ cannibal girlfriend⠀ : }}$
+</div>
+
+<p align="center">
+  <img src="https://64.media.tumblr.com/5a09af143c74b28157d3ad43f5aa1ddc/e290b439773fb84b-51/s540x810/cb3c9134d82d28e458aa99ee6057dd0a761c1d38.pnj" width="200" height="200%"/>
+</p>
+<br>
+
+<p align="center"> ♡﹕‘ leylaㅤノㅤtanyl　;　he/she⠀</p> 
+<p align="center"> ﹕ multisourced introject,　roles elsewhere. </p> 
+<p align="center"> proship　ෆ　antiharrassment　ෆ　basic dni. </p>
+<br>
+
+<p align="center">
+  <img src="https://64.media.tumblr.com/681fc6f84730b972685e7fab55604b63/cfef6f457cdfb699-a7/s2048x3072/1351289b16e10fdfb197b282112ae54dbbe48738.pnj" />
+
+<br>
+<details align="center">
+<summary> 　𝐢𓈒 　ext. info. </summary>
+  multisourced introject,　 i will only talk about tcoaal with close friends but even then it'll be brief.　 if i'm online,　then ponytown is typically background "noise" for me　a.k.a i am offtab, WHISPER to get my attention　;　i'll get back to you when i see it.　 boop me, cuddle, do whatever i don't care.　 i'm not much of a talker,　please forgive my silence or dry replies.　 taddd bit sensitive, always iwc.
+</details>
+ <br>
+
+<details align="center">
+<summary> 　𝐢𝐢𓈒　blinkies. </summary>
+  <img src="https://64.media.tumblr.com/782ac268529ef105ebef152e8409eb0a/b4a8996229d50d4f-e4/s250x400/760b9dff7bc51046270c6a4e354b2a6cca03ef3c.gifv">  <img src="https://64.media.tumblr.com/244bf352b413ef4dce7d90978384092c/dbd8b1e992a56a49-15/s250x400/cb8799210e996ab9afbcb73900d2febdb10adb7d.gifv">  <img src="https://64.media.tumblr.com/f610b6da2b927059f65f2dfa2cd66597/4ecc8c90199d6802-13/s250x400/f7c1ccab158ee57eec6726dd77d644318c20ea37.gifv">  <img src="https://64.media.tumblr.com/ab0a2d9f9922770cebf565ac5ca37ee3/7bba08dae7e595f2-a6/s250x400/a7312addaa62f692dca82fbd5dd8544fb05dd380.gifv">  <img src="https://64.media.tumblr.com/8058339efceae3e6c40afa5ede5f010a/d0e018e3374995a9-1c/s250x400/b124c372cd84ffdb0709b41b2bdc36dce9131824.gifv">  <img src="https://64.media.tumblr.com/cd29a51a34488eb089e18243274143e4/72f68783cdc5f990-48/s250x400/e0bd27caf7701255ae7655a36edab92632c32d57.webp">  <img src="https://64.media.tumblr.com/af912fc5e0e164efa5b0eac313a3ea1c/c67fa6c636418c25-79/s250x400/2b7441fcd86700ea37ef042cf92b2581bdb9a21e.webp">  <img src="https://64.media.tumblr.com/4debeaf36bfe7c51ed046c2f037b635e/9c18d6deedc57b7a-24/s250x400/b4b8412775f478c5f3419269a75e30b6619e7e32.gifv">  <img src="https://64.media.tumblr.com/c49cd1908864249f7c4380107395080f/3fcb6357688f73de-5e/s250x400/c08162717cdd492cc0307e8c447f185135490135.webp">  <img src="https://64.media.tumblr.com/5aa4425059520c10b8e16fe5aae7c891/8365f9b2142be285-2c/s250x400/0a73a21e661a76e6f4cbc1ab012dd46b97b41f5a.gifv">  <img src="https://64.media.tumblr.com/d163be7d840414a546a42ef772785fd1/e786603bf48202fe-ab/s250x400/d1dbb0947da7585477df997f2d048bb9fcfb59bb.gifv">  <img src="https://64.media.tumblr.com/ebe9de303647882e22cb06a3197d57de/08eb5d7ebc8b8427-a4/s250x400/97054c018a52194e1d8eee01d6e908d23e9a78a4.gifv">  <img src="https://64.media.tumblr.com/72921a876f1f72f4e9a8ac4688d662e4/08eb5d7ebc8b8427-b8/s250x400/615336cfb9bb5a1b7eb1266fa3915f801241da18.gifv">  <img src="https://64.media.tumblr.com/c2394aa19b7ce00cfef94dbf4421445a/44093b7315795e8b-62/s250x400/0cba53f57f902b14737b23271c26212b61c7ea05.gifv">  <img src="https://64.media.tumblr.com/b787b8935d094a3928c1d63bdf86c98f/44093b7315795e8b-ea/s250x400/f2bd59882ef27dae68aa2c961407ff71e7a8ecf3.gifv">  <img src="https://64.media.tumblr.com/e8f49c8c803ee4f5f0213e917bf94ab0/677deaad94ce8405-9c/s250x400/e6cf54478634ed02bec129e3f83924bffb26509b.gifv">  <img src="https://64.media.tumblr.com/3829589cc76c98b0023c95e3285419e4/b14bec91d15efe4c-18/s250x400/13cb55fca5a2b1b4202c37da1d2c262ce91a4628.webp">  <img src="https://64.media.tumblr.com/e3c5b1a644030aca360f9e25cb575971/1965001c4593b431-60/s250x400/6697048e8e409bb435d4c76d7b18b45af24a1253.gifv">  <img src="https://64.media.tumblr.com/5495d564adc9b6f92760778ec2762fa7/4809dea13c8d99e3-74/s250x400/518c1d3402b1fa6e1bbfb365cf840f00e8e7505c.webp">  <img src="https://64.media.tumblr.com/7fb93a12dbff9757fae21b9b19fb8654/311328b2319e88af-0b/s250x400/9cd7af6a1de2679385960e7834efc35a57b1aaf8.gifv">  <img src="https://64.media.tumblr.com/b7b305c83cc8f020441846788984a6ae/e6c3d6e24bb9e481-89/s250x400/ba5ea0c31793aa79d46f0e49dd9a6ae5d5f8e186.gifv">  <img src="https://64.media.tumblr.com/fe8823f1166c2eba570c0166403bed24/c35b95fb69cd6ee2-da/s250x400/c451af623a1e48c61f3838da45d792ce67f7dee3.gifv" /> <img src="https://64.media.tumblr.com/98f6790a2a4953eab0fc3db2fea710c2/6db96f7ecd419257-10/s250x400/afa50b35839441b9c9804696c303c84a5123330c.gifv">  <img src="https://64.media.tumblr.com/f8cfb6962c2073727ca0ebb00c4cf121/5266f95f57864019-85/s250x400/c3fbb2962a80d621de7ce890f7c92403a33115b4.gifv">  
+</details>
+ <br>
+
+ <details align="center">
+<summary> 　𝐢𝐢𝐢𓈒　stamps. </summary>
+  <img src="https://64.media.tumblr.com/b4c487972024eb655f92050903359f50/1344d672e2b2c2ad-c0/s100x200/73d861eded039a0b663739ff8e912c95ec1781a7.pnj">  <img src="https://64.media.tumblr.com/bbe21b589cd9c2e08ea30302665fca80/320c9144c24c782d-a7/s100x200/f8fa02fd5395781bfee61f0a2b459a42fbebf8ca.gifv">  <img src="https://64.media.tumblr.com/f3801c8f59ab245146ffa8ba402d8e20/8365f9b2142be285-05/s100x200/1e8c36421cb7c363fa5aae1f16070ec7ccc35ebc.pnj">  <img src="https://64.media.tumblr.com/317627893ed631b54f9142364ec08ab5/e786603bf48202fe-f2/s100x200/471f5e449c1cf40f81c08f06e658ab4df8b1bb5f.gifv">  <img src="https://64.media.tumblr.com/cc930669c7b9a15437ad54f3411b6f41/08eb5d7ebc8b8427-35/s100x200/9bf599772e1ce4e55d95636175085f3ac4253cb9.gifv">  <img src="https://64.media.tumblr.com/15c04ebe94ff36c2619e9d0041c85514/677deaad94ce8405-4e/s100x200/dedae52b33cfd1af64533ee52f3078c45d153595.gifv">  <img src="https://64.media.tumblr.com/ea8512d061cdebd5a5db19b6c80ba529/2b50de83d2b3bb21-b1/s100x200/33525c16498937dbfccdd557e6043559c4ad0bdb.gifv">  <img src="https://64.media.tumblr.com/1e185affa243446f0986e32549cfacd0/c87c82e49c5a18f2-20/s100x200/3dc98d3567335ac6adfd584b40c14c5e8e5e89f2.gifv">  <img src="https://64.media.tumblr.com/f2d1308c52df80e663a8dba7ac6e781f/5155623caaa86de8-b6/s100x200/387446acb4ddd1f15fec82d1d29deba38f59a6b3.gifv">  <img src="https://64.media.tumblr.com/ea0d38b5644f3dbdfc869dde4aa56593/14df2b8e0ccc2214-c1/s100x200/91a33f0273ab221ea324f7bd4dda68d768ee69b4.gifv">  <img src="https://64.media.tumblr.com/f41a2ffbe70848af6b0aacc8469c32a0/672f30845d018425-58/s100x200/e64999b1ccf4507d1586194b051e494a42b51de0.gifv">  <img src="https://64.media.tumblr.com/6faf14dede30ce6383085615547fb17a/0a314c1722fc4072-0d/s100x200/5eb5c8e93e2e94681530c7e78117e80c3a3db2b2.pnj">  <img src="https://64.media.tumblr.com/540ae8a2d6cbaa373acfba0b8f63ba60/1965001c4593b431-28/s100x200/7d75c1f68a11a2db8b9fe35f5d443754aa04459c.pnj">  <img src="https://64.media.tumblr.com/f68851d333387a86f7ca0a22ffe0affc/e7bec165e8f1c8e8-5a/s100x200/0246ebb7cb7df453e9f8119c54e121409c6bba96.webp">  <img src="https://64.media.tumblr.com/9d418dca886e5f4e3c96511b2fe8a67b/120d2524d40e430a-d5/s100x200/072f3fd5d9ae9cdd59499c5fc85029199d12c001.gifv">  <img src="https://64.media.tumblr.com/dd79d3299092c3f9a175161bb18f0860/4563b7e1e7a264b5-87/s100x200/6ed292fc456181a6e61e3680ab9f7a2f94e9ff6d.pnj">  <img src="https://64.media.tumblr.com/75ecf05b07cbcfdba097afa6ba7f5e36/1a0bd8a997af9343-f3/s100x200/527dc6de3bb6dd034da963a15ad667ca47ce62f8.gifv">  <img src="https://64.media.tumblr.com/e29a650e7473e1377715092bb49606bb/a5b6896041f0ab1d-3d/s100x200/bf34004ffc3ce7d5f7903e493aee09fde8a30719.pnj">  <img src="https://64.media.tumblr.com/fa75183abec55513e7d215a201c94b2d/a5b6896041f0ab1d-d8/s100x200/601f887f57011c1b9236aa9205a1655128456ad7.webp">  <img src="https://64.media.tumblr.com/12ea8dd8581046b7748b44a04d6697c0/4638d152ba67b5d9-35/s100x200/8986b763aab9ea9989011b3b5ab1ee69e966ec61.gifv">  <img src="https://64.media.tumblr.com/bf9e9f837a28dbc93b2643e27d422710/4275bcfcf8ee841f-58/s100x200/fd5015db19b00f7a863b456807180a9d0fc48ec4.gifv">  <img src="https://64.media.tumblr.com/a2a7bebcb00171873483457743b40037/79d8b316934d24c3-e7/s100x200/fad681e9e223de88b796831758a1c28e3596b789.pnj">  <img src="https://64.media.tumblr.com/b6ccd8b496abed58077a1f30137b61f0/f943d9890bee0f57-01/s100x200/8a1b17dd0c72cf69503db35e4809e93ca2f91b19.gifv">  <img src="https://64.media.tumblr.com/17e7f51e27c14f4360739a4113306e51/473928ea48888009-16/s100x200/4a5cf44a6826e8a31ad60bdfcd9598dac73eddeb.jpg">  
+</details>
+
+<div align="center">
+
+## ${\textsf{\color{#4d100d}⠀𐎕　she really tore me apart⠀! }}$
+</div>
+
+still very much a wip, links soon.
